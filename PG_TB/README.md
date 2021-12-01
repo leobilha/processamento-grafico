@@ -38,6 +38,6 @@
 
 ###Leonardo Terragno
 
-###Joseane Nicolodi
+###Josiane Nicolodi
 
 ###Antonio Richter
